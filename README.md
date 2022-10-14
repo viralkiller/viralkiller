@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @viralkiller
+- 👀 I’m interested in graphics programming in Houdini
+- 🌱 I’m currently learning Solidity and Web3
+- 💞️ I’m looking to collaborate on a Crypto project
+- 📫 How to reach me, you must discover <(°.°)> 
